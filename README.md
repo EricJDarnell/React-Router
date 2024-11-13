@@ -1,1 +1,1 @@
-https://spectacular-kashata-a277c7.netlify.app
+https://reliable-dusk-8314e6.netlify.app
